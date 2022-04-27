@@ -9,7 +9,7 @@ Knight b.levan ©ut my Mutter on half and relise me ... there was other ©hildre
 
 We was 46 or 47 in ©las$ like 46 ©hromosomes. Definitivt $ign of my grand₽arents ARTZ mm. 
 
-$olar ©olär нить Bа₽gонавтов & bAu₽ör A B@rjalji$ and blessing of my All Queens and those fuktiga varma, tredje ögan ÅÖ driver me so effectift i sökan av ferlohrenes S©hazchens, my dearz! At past sutarday I explore unbelivable link lived by my fater / bar, whos barn I am by S©andic svorgian mm.
+$olar ©olär нить Bа₽gонавтов & bÆurö₽_A_B@rjalji$e© and blessing of my All Queens together with Железна®Дровосека and those fuktiga varma, tredje ögan ÅÖ driver me so effectift i sökan av ferlohrenes S©hazchens, my dearz! At past sutarday I explore unbelivable link lived by my fater / bar, whos barn I am by S©andic svorgian mm.
 
 Huvudsaket är varje av hon vet om mitt research, men någon stoppar de! För att jag kan inte föreställa utväklingen än viktigare, then to find each other after & when we do this they push the brakes! Why? Even I explore a multi reality from dfferent stages like from my side and maybe they ar attached to one, but warm felling fill me up when I remember them and why there is no plase to enjoy in a bug family, with those children, mine too and all together vi könte segla havet på vår eget ubot nu©lear ATOM, but best BARRESTAURAng to stop at any Island and gave them to degustate best I ©an Käkli© Käkli© Käkli© w@rm av B@rg mm  
 
