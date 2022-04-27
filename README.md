@@ -1,7 +1,7 @@
 # colansu
 http://solen.info/solar/old_reports
 
-www.BARD.cf & www.BANKPOST.GA SIEN©E 1932
+www.BARD.cf & www.BANKPOST.GA SIEN©E 1932 even Ar©hitect Bunion research somesing, that i realising now!
 
 It began lont time ago, when I leaking QUEENKING TAMARAS V. drnking and deployd to so called B₽ußi too ... falen by $©huttle or Bu₽AN when I was reborn at 1974 on Sunday.
 
