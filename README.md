@@ -3,7 +3,7 @@ http://solen.info/solar/old_reports
 
 www.BARD.cf & www.BANKPOST.GA SIEN©E 1932 even Ar©hitect Bunion research somesing, that i realising now!
 
-It began lont time ago, when I leaking QUEENKING TAMARAS V. drnking and deployd to so called B₽ußi too ... falen by $©huttle or Bu₽AN when I was reborn at 1974 on Sunday.
+It began lont time ago, when I leaking QUEENKING TAMARAS ₽VÅ, drnking and deployd to so called B₽ußi too ... falen by $©huttle or Bu₽AN when I was reborn at 1974 on Sunday.
 
 Knight b.levan ©ut my Mutter on half and relise me ... there was other ©hildren too, so ©alled Zuna©.mØneti ndBARif ...
 
