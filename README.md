@@ -1,4 +1,4 @@
-# ©olansu
+# ©olänsuнი
 http://solen.info/solar/old_reports
 
 www.BARD.cf & www.BANKPOST.GA SIEN©E 1932 even Ar©hitect Bunion research somesing, that i realising now!
